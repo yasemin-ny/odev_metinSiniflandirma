@@ -1,0 +1,1 @@
+"Metin madencilii dersi ödevi"
