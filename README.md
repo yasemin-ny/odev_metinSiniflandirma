@@ -1,1 +1,1 @@
-"Metin madencilii dersi ödevi"
+"Metin madenciligi dersi ödevi"
